@@ -10,7 +10,7 @@ Där fick vi ett samlat ihop kontaktuppgifter deltagarna och startat ett byalag 
 
 valda blev:
 
-Andreas Nilsson
+Andreas Nilsson (Ordförande)
 Eva Jakobsson
 Anders Malm
 Pierre Wulff
