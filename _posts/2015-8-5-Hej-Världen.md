@@ -8,7 +8,8 @@ Vi hade förra veckan en inledande möte som Karl-Erik kallat till i församling
 
 Där fick vi ett samlat ihop kontaktuppgifter deltagarna och startat ett byalag för att främja en framtida fiberutbyggnad i byn. Där utsågs fyra representanter med önskad spridning i åldrarna 
 
-valda blev
+valda blev:
+
 Andreas Nilsson
 Eva Jakobsson
 Anders Malm
